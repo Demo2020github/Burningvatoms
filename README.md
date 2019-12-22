@@ -1,5 +1,5 @@
 #### Burningvatoms####
 
 
-# All designes created by James Wick #
+# All designs created by James Wick #
 http://jameswickham.com
